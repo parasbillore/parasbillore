@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **parasbillorepb@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1VWByQ2UlA0HJfQUQq5qlQ2t2wf1h0hDz](https://drive.google.com/drive/folders/1VWByQ2UlA0HJfQUQq5qlQ2t2wf1h0hDz)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nipAP4GOlwjEEAmpNGDdvNJ6UZjqUaZq/view?usp=sharing](https://drive.google.com/file/d/1nipAP4GOlwjEEAmpNGDdvNJ6UZjqUaZq/view?usp=sharing)
 
 - ⚡ Fun fact **Find's Fun in every Fact.**
 
